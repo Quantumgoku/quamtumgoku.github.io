@@ -1,0 +1,1 @@
+# quamtumgoku.github.io
